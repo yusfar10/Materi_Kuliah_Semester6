@@ -15,4 +15,4 @@
 ![alt text](image-3.png)
 9. informasi CC card dan Konfirmasi Tagihan
 10. hasil akhir
-![alt text](image-4.png)
+![alt text](<WhatsApp Image 2026-02-20 at 10.21.16.jpeg>)
