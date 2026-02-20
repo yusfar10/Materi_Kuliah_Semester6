@@ -14,3 +14,5 @@
 8. Informarsi Kontak
 ![alt text](image-3.png)
 9. informasi CC card dan Konfirmasi Tagihan
+10. hasil akhir
+![alt text](image-4.png)
